@@ -1,3 +1,3 @@
 TD 4 de Explainability AI
 
-Eliot et Cécilia
+Eliot, Cécilia, DJoudi, Subina et Mohamed
